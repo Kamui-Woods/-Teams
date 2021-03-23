@@ -6,7 +6,7 @@
 ## Supreme Sasuke, Chidori.
 ![Screen Shot 2021-03-22 at 6 51 40 PM](https://user-images.githubusercontent.com/79371323/112080954-1ae03080-8b40-11eb-9b5a-ece3510f75ea.png)
 
-## Supreme Naruto, Sage Mode.
+## Supreme Naruto, [Sage Mode.](docs.google.com/presentation/d/1oqLIG90R73MiQ1g-HZH8-Y0HbchXkjdRWSg7f1rirK0/edit#slide+id.p)
 ![Screen Shot 2021-03-22 at 6 52 14 PM](https://user-images.githubusercontent.com/79371323/112080982-26335c00-8b40-11eb-9fa9-f9066205317e.png)
 
 
